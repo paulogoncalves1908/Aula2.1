@@ -1,1 +1,3 @@
-# Aula2.1
+Bruna Marquezine
+Grazi Massafera
+Isis Valverde
