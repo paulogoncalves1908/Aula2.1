@@ -1,3 +1,4 @@
 Bruna Marquezine
-Isis Valverde
+Valverde Isis
 Ana Hickman
+Bianca Rinaldi
